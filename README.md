@@ -1,0 +1,1 @@
+# Magnetic-Bit-Patterned---Field-Simmulations-3D
